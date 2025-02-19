@@ -59,6 +59,8 @@
 
 # 联系
 
-![Uploading lianxi.png…]()
+![lianxi](https://github.com/user-attachments/assets/41972f74-ce73-4cbb-ac9c-adf5a4e78ba8)
+
+
 
 
